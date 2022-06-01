@@ -11,3 +11,6 @@ https://www.youtube.com/watch?v=-v0XiUQlRLw
 ## Symposiums, Interviews
 - Environmental Justice Symposium 2022: SharedAirDFW and the State of Our Air
 https://www.youtube.com/watch?v=L3s-4MAkYJE
+
+## Articles
+- 
